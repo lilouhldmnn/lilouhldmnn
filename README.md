@@ -1,4 +1,4 @@
-### Hi there, I'm Ether !
+## Hi there, I'm Ether !
 > "I'm done. I won't run anymore"
 
 I'm an artist/designer graphic currently studying at the Esadhar (Higher School of Art and Design at le Havre-Rouen) specializing in graphic design in Le Havre, France.
