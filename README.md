@@ -6,9 +6,9 @@ I'm an artist/designer graphic currently studying at the Esadhar (Higher School 
 ---
 
 More about me
-- **Education : 3rd at Esadhar + 1 years of Foundation course at the Higher School of Art and Design (at Grand Paris Sud)**
-- **Specialization : currently finding out...**
-- **Contact : [My Linktree](https://linktr.ee/lilou.hldmnn)**
+- **🎓 Education : 3rd at Esadhar + 1 years of Foundation course at the Higher School of Art and Design (at Grand Paris Sud)**
+- **🎶 Specialization : currently finding out...**
+- **✉️ Contact : [My Linktree](https://linktr.ee/lilou.hldmnn)**
 
 ---
 
