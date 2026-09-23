@@ -16,6 +16,10 @@ My ToolBox
 
 currently in working...
 
+---
+
+I'm still learning coding, please be kind ✨
+
 
 
 <!--
